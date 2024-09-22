@@ -1,0 +1,1 @@
+Chelsea patří do druhé ligy
